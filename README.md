@@ -1,1 +1,0 @@
-# syawal.github.io
